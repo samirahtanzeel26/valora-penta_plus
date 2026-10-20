@@ -1,1 +1,0 @@
-# valora-penta_plus
